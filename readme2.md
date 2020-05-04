@@ -8,6 +8,8 @@ gotta get caught up.  keep grinding.
 
 ![lion](https://shutterstock.com/image-photo/portrait-beautiful-lion-dark-1471780619)
 
+![lion pic #2 try](https://www.shutterstock.com/image-photo/portrait-beautiful-lion-dark-1471780619)
+
 
 ## description of something...
 ### table of contents
